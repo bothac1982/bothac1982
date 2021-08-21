@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Ethical Hacking Tips and Tricks
 - 
 📫 How to reach me:
-t.me/bothac1982
+https://t.me/bothac1982
 bothac1982@gmail.com
 https://twitter.com/bothac1982
 
